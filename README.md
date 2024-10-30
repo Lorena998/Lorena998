@@ -2,7 +2,7 @@
 
 #### Location: Mazara Del Vallo, Italy | Date of Birth: 23/09/1998 | Email: sciaccalorena@yahoo.it
 
-## [LinkedIn](www.linkedin.com/in/lorena-sciacca-7b0362278) | [GitHub](https://github.com/Lorena998)
+## [LinkedIn](https://linkedin.com/in/lorena-sciacca-7b0362278) | [GitHub](https://github.com/Lorena998)
 
 ## BIO
 
